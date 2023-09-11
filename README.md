@@ -1,1 +1,1 @@
-# GuoziJun.github.io
+# GuoZijun.github.io
